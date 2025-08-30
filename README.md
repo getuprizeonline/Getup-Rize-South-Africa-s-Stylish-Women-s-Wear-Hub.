@@ -1,0 +1,2 @@
+# Getup-Rize-South-Africa-s-Stylish-Women-s-Wear-Hub.
+Fashion and Style: Best Deals on Women’s Wear  Fashion isn’t just about clothes — it's about confidence and expressions  Whether it’s a satin dress for brunch or a hoodie for a chilled evening , Getup Rize keeps you looking fabulous every day. Fashion &amp; Style, just for you!   Getuprize brings you the best deals on women’s wear in South Africa. 
